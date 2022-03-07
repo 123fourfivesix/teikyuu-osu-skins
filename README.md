@@ -5,3 +5,6 @@
 
 # [Telta edit](https://drive.google.com/file/d/1qQ3JQY3jyEBPI1pn-AOkW5YisbNGg-6L/view)
 ![](https://imgur.com/2dAhcG6.png)
+
+# [Cookiezi 2017-11-21pinkcursor](https://circle-people.com/wp-content/Skins/Cookiezi/Cookiezi%2026%202017-11-21%20pinkcursor.osk)
+![](https://shigeskinss.s-ul.eu/vo4irF0e)
