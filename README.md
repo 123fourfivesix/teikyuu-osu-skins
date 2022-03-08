@@ -18,5 +18,5 @@
 # [Joie's Sv9xTuna whale](https://vxc.s-ul.eu/SyY9X9YH)
 ![](https://imgur.com/dR9ELiy.png)
 
-# [- 『TeikyuuMoon(an edit of XooMoon)』
+# [- 『TeikyuuMoon(an edit of XooMoon)』(https://tkym.s-ul.eu/XB2tLefd)
 ![](https://imgur.com/qpSQc0C)
