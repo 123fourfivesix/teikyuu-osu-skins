@@ -14,3 +14,6 @@
 
 # [「 FlatoShabe 」](https://drive.google.com/file/d/10QJA8TIqlMuoDvi0v6pV0b_0sAY_EKgR/view)
 ![](https://imgur.com/tgNJMqU.png)
+
+# [Joie's Sv9xTuna whale](https://vxc.s-ul.eu/SyY9X9YH)
+![](https://imgur.com/dR9ELiy.png)
