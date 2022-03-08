@@ -19,4 +19,4 @@
 ![](https://imgur.com/dR9ELiy.png)
 
 # [TeikyuuMoon](https://tkym.s-ul.eu/XB2tLefd)
-![](https://imgur.com/qpSQc0C)
+![](https://imgur.com/qpSQc0C.png)
