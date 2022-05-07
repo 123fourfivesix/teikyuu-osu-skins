@@ -3,7 +3,7 @@
 
 * [**teikyuu's twitch**](https://www.twitch.tv/teikyuuuu)
 
-# [Cookiezi 2018-09-02 (CURRENT)](https://circle-people.com/wp-content/Skins/Cookiezi/Cookiezi%2033%202018-09-02.osk)
+# [Cookiezi 2018-09-02](https://circle-people.com/wp-content/Skins/Cookiezi/Cookiezi%2033%202018-09-02.osk)
 ![](https://osu.ppy.sh/ss/12217212)
 
 # [Telta edit](https://drive.google.com/file/d/1qQ3JQY3jyEBPI1pn-AOkW5YisbNGg-6L/view)
