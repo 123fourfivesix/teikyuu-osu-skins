@@ -1,7 +1,7 @@
 
 # teikyuu-osu-skins
 
-* [**teikyuu's twitch**](https://www.twitch.tv/teikyuuuu)
+//* [**teikyuu's twitch**](https://www.twitch.tv/teikyuuuu)
 
 # [K-On!! - Nakano Azusa](https://tkym.s-ul.eu/szS5aRpF)
 ![](https://imgur.com/lg8GlhR.png)
