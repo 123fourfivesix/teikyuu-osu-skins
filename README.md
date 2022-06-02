@@ -2,7 +2,7 @@
 # teikyuu-osu-skins
 
 # [Teikyuu x Yorushika CLICK TEXT TO DOWNLOAD](https://tkym.s-ul.eu/GxknnXJn)
-# [showcase video!!](https://www.youtube.com/watch?v=heOwumjMAAI)
+# [showcase video for teikyuu x yorushika](https://www.youtube.com/watch?v=heOwumjMAAI)
 
 # [K-On!! - Nakano Azusa](https://tkym.s-ul.eu/szS5aRpF)
 ![](https://imgur.com/lg8GlhR.png)
