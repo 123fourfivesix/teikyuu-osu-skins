@@ -2,10 +2,10 @@
 # teikyuu-osu-skins
 
 # [Teikyuu x Yorushika CLICK TEXT TO DOWNLOAD](https://tkym.s-ul.eu/GxknnXJn)
-# [showcase video for teikyuu x yorushika](https://www.youtube.com/watch?v=heOwumjMAAI)
+![](https://imgur.com/vyEWH2c.png)
 
-# [K-On!! - Nakano Azusa](https://tkym.s-ul.eu/szS5aRpF)
-![](https://imgur.com/lg8GlhR.png)
+# [showcase video for teikyuu x yorushika](https://www.youtube.com/watch?v=heOwumjMAAI)
+![](https://imgur.com/ewXnNlQ.png)
 
 # [Cookiezi 2018-09-02](https://circle-people.com/wp-content/Skins/Cookiezi/Cookiezi%2033%202018-09-02.osk)
 ![](https://osu.ppy.sh/ss/12217212)
