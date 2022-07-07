@@ -4,7 +4,7 @@
 * [**osu clip dump**](https://www.youtube.com/channel/UCrkrCSGjIVF6-TODWwzxiqg)
 * [**Twitch**](https://www.twitch.tv/teikyuusomuch)
 
-# this is really outdated. i switch skins pretty often, so i will try my best to update it every few months!
+this is really outdated. i switch skins pretty often, so i will try my best to update it every few months!
 
 # [Teikyuu x Yorushika CLICK TEXT TO DOWNLOAD](https://tkym.s-ul.eu/GxknnXJn)
 ![](https://imgur.com/vyEWH2c.png)
@@ -31,7 +31,7 @@
 # [Cookiezi 2018-09-02](https://circle-people.com/wp-content/Skins/Cookiezi/Cookiezi%2033%202018-09-02.osk)
 ![](https://osu.ppy.sh/ss/12217212)
 
-[1.0 blue](https://joofixd.s-ul.eu/Idc2Mdek)
+# [1.0 blue](https://joofixd.s-ul.eu/Idc2Mdek)
 ![](https://osu.ppy.sh/ss/15821083/950a)
 
 # [SameSkinButNoFollowpoint edit asdf with gameplay box](https://joofixd.s-ul.eu/4AWI8ZCz)
@@ -40,7 +40,7 @@
 # [vaxei v1.2](https://joofixd.s-ul.eu/Gq2lH4N4)
 ![](https://osu.ppy.sh/ss/13421895/4170)
 
-[1.0 old](https://drive.google.com/file/d/1IeGhMJvkwxRa9NGQmTKm7jlNjh4xgSrY/view?usp=sharing)
+# [1.0 old](https://drive.google.com/file/d/1IeGhMJvkwxRa9NGQmTKm7jlNjh4xgSrY/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/15593839/d7bf)
 
 # [21.3](https://circle-people.com/wp-content/Skins/Cookiezi/Cookiezi%2021.3%202017-02-20.osk)
