@@ -4,7 +4,7 @@
 * [**osu clip dump**](https://www.youtube.com/channel/UCrkrCSGjIVF6-TODWwzxiqg)
 * [**Twitch**](https://www.twitch.tv/teikyuusomuch)
 
-# this is really outdated i switch skins pretty often, so i will try my best to update it every few months!
+# this is really outdated. i switch skins pretty often, so i will try my best to update it every few months!
 
 # [Teikyuu x Yorushika CLICK TEXT TO DOWNLOAD](https://tkym.s-ul.eu/GxknnXJn)
 ![](https://imgur.com/vyEWH2c.png)
