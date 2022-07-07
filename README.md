@@ -26,7 +26,7 @@
 
 
 # [-+ Seoul v9 Pineapple Color](https://shigeskln.s-ul.eu/aZMjYmod)
-![](https://i.imgur.com/WpLyPMn.png
+![](https://i.imgur.com/WpLyPMn.png)
 
 # [Cookiezi 2018-09-02](https://circle-people.com/wp-content/Skins/Cookiezi/Cookiezi%2033%202018-09-02.osk)
 ![](https://osu.ppy.sh/ss/12217212)
