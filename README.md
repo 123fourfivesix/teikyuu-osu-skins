@@ -1,6 +1,9 @@
 
 # teikyuu-osu-skins
 
+* [**osu clip dump**](https://www.youtube.com/channel/UCrkrCSGjIVF6-TODWwzxiqg)
+* [**Twitch**](https://www.twitch.tv/teikyuusomuch)
+
 # [Teikyuu x Yorushika CLICK TEXT TO DOWNLOAD](https://tkym.s-ul.eu/GxknnXJn)
 ![](https://imgur.com/vyEWH2c.png)
 
