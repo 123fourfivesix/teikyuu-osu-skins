@@ -12,6 +12,9 @@ this is really outdated. i switch skins pretty often, so i will try my best to u
 # [showcase video for teikyuu x yorushika](https://www.youtube.com/watch?v=heOwumjMAAI)
 ![](https://imgur.com/ewXnNlQ.png)
 
+# [BubbleSkin20-10-09](https://drive.google.com/file/d/1p3gvOtWth3-dEsPdA2bjVCyeZTiJYan4/view)
+![](https://imgur.com/C1JeIGh.png)
+
 # [- Seoul v10](https://twitter.com/SeoulessOsu/status/1474508609102954499)
 ![](https://i.imgur.com/OS4JrLz.jpg)
 
